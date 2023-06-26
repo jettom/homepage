@@ -1,4 +1,1 @@
-
 ### Recent blog posts
-
-
